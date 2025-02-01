@@ -6,8 +6,6 @@ This matchup marks the first of back-to-back games for the Suns, kicking off a f
 
 ## Live Updates
 
-For live updates, scores, highlights, and statistics during the Suns-Warriors game, check [azcentral](https://www.azcentral.com).
-
 ### Booker, Allen Keep Suns in Front Through 2nd Quarter
 
 Phoenix extended its lead to double digits in the second quarter, leading 62-51 at halftime.
